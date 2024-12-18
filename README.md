@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Product design
 - 💞️ I’m looking to collaborate on Product design
 - 📫 you can reach me on Email: bimbalance4@yahoo.com,Linkedin:Temitope Abimbola Ogunbona 
-- 😄 Pronouns: ...
+- 😄 Pronouns: ...she/her
 - ⚡ Fun fact: ...
 
 <!---
